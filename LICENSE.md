@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots Scripts stealth is the best escape tsunami for brainrots Script, featuring auto-upgrade and auto-sell. Safe and powerful
 
 
 
